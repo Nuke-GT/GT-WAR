@@ -1,0 +1,1 @@
+É A GT MANO NAO TEM COMO
